@@ -1,2 +1,2 @@
-# Preetha-Portfolio.github.io
+# Preetha-Portfolio
 Hey! This is Preetha
